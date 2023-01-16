@@ -1,2 +1,0 @@
-# aldeadudauiugaTPI
-Proiect TPI
